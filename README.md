@@ -1,0 +1,2 @@
+# COMP34711-Natural-Language-Processing-University-of-Manchester
+COMP34711 Natural Language Processing 辅导, NLP, QQ: 496352127, WeChat: cestbon_688, Email: accoder_overseas@163.com
